@@ -1,7 +1,7 @@
 ### Hi there 👋
 Hi I am Nidhi
 
-![image](https://user-images.githubusercontent.com/113211165/189439384-6de119fd-5661-4cf1-a0c6-33a04f73e9b2.png)
+![download](https://user-images.githubusercontent.com/113211165/189440110-9df2e097-6abf-4cd6-831d-f34e8da668b3.jpg)
 
 💻 I am a self taught IT Professional.
 📚 I have a Bachelors degree in Electronics from Gujarat Technological University India.
